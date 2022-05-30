@@ -1,1 +1,0 @@
-weclome to new tech
